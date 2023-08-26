@@ -1,2 +1,2 @@
 # hello-world
-This is the repository hello-world
+I am a Sociocultural Anthropology Ph.D. student at Michigan State University (MSU). I am specializing in medical and environmental anthropology. I am also pursuing a graduate specialization in Gender, Justice, and Environmental Change offered through the Center for Gender in Global Context at MSU. My research interests include entanglements of health, environment, and gender, water justice and water governance, and state violence and social suffering. My doctoral research examines the social and political aspects of water insecurity in the context of Chronic Kidney Disease of uncertain etiology (CKDue) in Sri Lanka. I am interested in learning innovative ethnographic methods. 
